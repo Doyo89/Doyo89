@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on programming and hacking ethics
 - 📫 How to reach me fb@ ßíq Gerry ,whatsapp 08127895708
 - 😄 Pronouns : me i and myself
-- ⚡ Fun fact: never resting till i get there fun to me
+- ⚡ Fun fact: never resting till i get they are fun to me
 
 <!---
 Doyo89/Doyo89 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
